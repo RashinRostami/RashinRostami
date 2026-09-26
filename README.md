@@ -20,7 +20,7 @@
 ### 💼 Links
 
 - 🔗 [My LinkedIn Profile](https://www.linkedin.com/in/rashin-rostami-6030b0375)
-- 📫 Email: *(Add it here if you'd like)*
+- 📫 Email: Rashinrst82@gmail.com
 
 ---
 
